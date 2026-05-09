@@ -1,4 +1,4 @@
-
+instant steal a brainrot Scripts is the best steal a brainrot Script, featuring no cooldown and instant win. Safe and powerful for all your needs.
 
 
 
